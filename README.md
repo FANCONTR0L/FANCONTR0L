@@ -2,7 +2,7 @@
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning code
 - 💞️ I’m looking to collaborate on NA
-- 📫 How to reach me https://www.reddit.com/user/fancontrol
+- 📫 How to reach me https://www.instagram.com/fancontr0l/
 
 <!---
 FANCONTR0L/FANCONTR0L is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
